@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Free Swiss Mountains Stock](https://images.freeimages.com/images/large-previews/371/swiss-mountains-1362975.jpg)
